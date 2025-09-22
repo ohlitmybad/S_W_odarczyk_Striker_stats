@@ -1,0 +1,1 @@
+# S_W_odarczyk_Striker_stats
